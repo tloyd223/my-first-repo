@@ -1,1 +1,1 @@
-# my-first-repo
+Yooooo it's your boy Tafari, I was born and raised in bk. I love the towns this a vibe no other city could compete with.  Music is the key to my heart, send me good tunez and i'll genuinely be happy i love sharing songs i like with ppl.# my-first-repo
